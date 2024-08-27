@@ -5,6 +5,8 @@ Nossa missão é transformar a experiência do cotidiano de nossos clintes, ofer
 
 Os eletrodomésticos **TecBril** são projetados para **otimizar o tempo e melhorar a qualidade de vida de quem usa nossos produtos!**
 
+![Imagem do WhatsApp de 2024-08-27 à(s) 07 30 31_d479f6a9](https://github.com/user-attachments/assets/ca3c8632-756a-4f9b-91d7-e62047e08134)
+
 
 ## Listagem de produtos:
 
